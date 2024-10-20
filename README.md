@@ -1,4 +1,13 @@
-![image description](https://cdn.discordapp.com/attachments/1264040713864085535/1297631458550218852/Untitled4_20241020134343.png?ex=6716a0f8&is=67154f78&hm=9334b212a60a880654150eb5b6b0fe6f5c91a40e823b520cb5f2f0255cf11274&)
+![image description](https://wilardo.crd.co/assets/images/gallery05/ad60aa3d.png?v=bca827db)
+
+
+   
+   "As long as I can be with you, even my digital heart will start to throb. Like a quantum wind, my heart will start to sway.”
+
+― Rin and Len Kagamine
+
+
+![image description](https://64.media.tumblr.com/714badf37314ae51730a87b7f6efeff0/112b2ad19ade328e-cb/s1280x1920/1ef893e92cebf4d23aff023dfde84b83c3d3a307.png)
 
 
   [strawpage !](https://sleepyallixq.straw.page)
