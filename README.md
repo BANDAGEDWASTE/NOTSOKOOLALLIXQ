@@ -1,4 +1,4 @@
-![image description](https://cdn.discordapp.com/attachments/1264040713864085535/1297622056355238039/Untitled4_20241020130621.png?ex=67169836&is=671546b6&hm=d0bce9e7e939c5ef6c8508ed7bc6201aeb570d85b764b50865f776f7a3518b25&)
+![image description](https://cdn.discordapp.com/attachments/1264040713864085535/1297631458550218852/Untitled4_20241020134343.png?ex=6716a0f8&is=67154f78&hm=9334b212a60a880654150eb5b6b0fe6f5c91a40e823b520cb5f2f0255cf11274&)
 
 
   [strawpage !](https://sleepyallixq.straw.page)
